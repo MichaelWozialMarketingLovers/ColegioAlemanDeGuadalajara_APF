@@ -1,0 +1,1 @@
+# ColegioAlemanDeGuadalajara_APF
